@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 🌷🌷🌷
 
 - 🩷 I’m currently studying Computer Engineering at the Polytechnic University of the Philippines
 - 🌸 I'm 18 years old
